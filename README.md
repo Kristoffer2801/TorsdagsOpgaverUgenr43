@@ -1,1 +1,2 @@
-# TorsdagsOpgaverUgenr43
+Kristoffer Kreiner
+cph-kk466@cphbusiness.dk
